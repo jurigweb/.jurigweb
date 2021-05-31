@@ -1,0 +1,2 @@
+# .jurigweb
+Republic Indonesia
